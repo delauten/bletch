@@ -1,2 +1,2 @@
 # bletch
-just a repo
+just a repo you idiots.
